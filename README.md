@@ -14,7 +14,6 @@ I will actually not be paying attention to syllables as much as I am parts of sp
 
 >“I don’t think counting 5,7,5 syllables is necessary or desirable. 
 >To reflect the natural world, and the season, is to reflect what is.” 
-
-~ Gary Snyder
+>~ Gary Snyder
 
 Read more here: http://www.nahaiwrimo.com/home/why-no-5-7-5
